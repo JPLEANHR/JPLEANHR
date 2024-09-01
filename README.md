@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @JPLEANHR
+- 👀 I’m interested in Lean Manufacturing, industrial engineering, and data-driven operational improvements.
+- 🌱 I’m currently learning Power BI and enhancing my data visualization skills to create impactful dashboards.
+- 💞️ I’m looking to collaborate on projects that involve Lean process improvements, data analysis, and workflow optimization.
+- 📫 How to reach me: You can reach out to me via email at [jayaprakashslm@gmail.com](mailto:jayaprakashslm@gmail.com) or connect with me on [LinkedIn](https://www.linkedin.com/in/jpakan07).
+- ⚡ Fun fact: I've successfully executed over 90 projects across various industries, bringing transformative changes to manufacturing processes.
